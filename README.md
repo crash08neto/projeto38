@@ -1,0 +1,2 @@
+# projeto38
+qwertyuiopasdfghjklçzxcvbnm
